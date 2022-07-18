@@ -3,12 +3,12 @@
    You can adapt this file completely to your liking, but it should at least
    contain the root `toctree` directive.
 
-Download GB WhatsApp APK Official Terbaru 2022
+Download GB WhatsApp APK Pro Version yang Aman dan Anti Blokir 2022
 ==================
 
 Fitur-fitur GB WA memiliki banyak sekali manfaat khususnya bagi para pebisnis online untuk menghasilkan cuan. Berbeda dengan Whatsapp original, fitur dari GB WA ini terbilang banyak dan jauh lebih lengkap.
 
-Bahkan beberapa fitur tersebut tidak ada di Whatsapp original sekalipun sudah di upgrade ke akun bisnis. Nah, sebelum membahas terkait fitur WA GB, mari kita cari tahu terlebih dahulu pengertian dari GB WA. Untuk langsung mengunduh GB WhatsApp APK Official versi terbaru, kamu bisa mendapatkannya lewat situs berikut ini: https://www.sebuahutas.com/2022/02/gb-wa-pro-apk-gb-whatsapp-official.html (update link 24 Februari 2022).
+Bahkan beberapa fitur tersebut tidak ada di Whatsapp original sekalipun sudah di upgrade ke akun bisnis. Nah, sebelum membahas terkait fitur WA GB, mari kita cari tahu terlebih dahulu pengertian dari GB WA. Untuk langsung mengunduh GB WhatsApp APK Official versi terbaru, kamu bisa mendapatkannya lewat situs berikut ini: https://www.sebuahutas.com/2022/06/gb-whatsapp-pro-v-download-apk-wa-gb.html (update link 18 Juli 2022).
 
 Apa Itu Gb Whatsapp?
 ==================
@@ -92,6 +92,12 @@ Selain berguna bagi pengguna, fitur di atas juga berguna pada pengguna Whatsapp 
 
 Secara garis besar, memang ada perbedaan yang cukup jauh antara versi modifikasi dengan versi original. Perbedaan yang paling terlihat adalah adanya foto yang di versi original hanya 10 foto sedangkan di modifikasi bisa mencapai 90 foto.
 
+Mengunci Aplikasi
+---------------------
+Salah satu fitur menarik dari GBWhatsapp adalah kamu bisa mengunci aplikasi tersebut untuk menjaga privasi. Sehingga secara otomatis, obrolan kamu akan dikunci dan baru bisa dibuka dengan input sandi. 
+
+Adanya fitur ini tentu sangat penting untuk pengguna yang ingin menjaga rahan pribadi mereka. Karena kita tahu, setiap orang pasti tidak ingin obrolannya dibuka atau dibaca oleh orang lain. Apalagi jika obrolan tersebut bersifat rahasia dan tidak boleh banyak diketahui publik. 
+
 Itulah berbagai fitur GB WA yang perlu kamu ketahui dan ini akan bermanfaat bagi banyak orang khususnya pebisnis. Meski hanya versi modifikasi, kamu tidak perlu takut di banned karena sekarang sudah ada fitur anti banned. Kamu bisa mengaktifkan terlebih dahulu sebelum melakukan chat atau aktivitas lain di aplikasi tersebut.
 
 Cara download dan install WhatsApp GB terbaru
@@ -136,4 +142,4 @@ Aplikasi WhatsApp GB terbaru memang sudah tidak diragukan lagi memberikan pengar
 
 **Referensi:**
 
-`Sebuahutas.com <https://www.sebuahutas.com>`_, `Karinov.co.id <https://karinov.co.id>`_, `Whitepaper.co.id <https://whitepaper.co.id>`_ 
+`Sebuahutas.com <https://www.sebuahutas.com>`_, `Karinov.co.id <https://karinov.co.id>`_, `Apec2013.or.id <https://www.apec2013.or.id>`_ 
